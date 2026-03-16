@@ -24,7 +24,8 @@
 
 ➤ inappropriate behavior; online sexual harassment IS a thing! Be respectful of others and mindful of the space you're in. There are many minors and children in this game. (This also applies to inappropriate skins/avatars)
 
-➤ country humans (specifically those who make skins of serious historical events—like this one n*zi country human I saw, and another one of martial law.) if you're not like that, then you're probably ok, but iwec still.
+➤ country humans (specifically those who make skins of serious historical events—like this one n*zi country human I saw, and another one of martial law.) if you're not like that, then you're probably ok, but iwe
+c still.
 
 𓏴 I tolerate a lot of things. But there are always exceptions. I'll probably either hide/block or mute you if you're displaying anything from that list.
 
