@@ -12,6 +12,8 @@
 
 ❥ I LOVE OCs! Tell me everything about your OCs now!!
 
+❥ I love occult stuff and horror themes! whether it be movies or games 😛 
+
 ╰┈➤  𓏴 DNI:  𓏴
 
 ➤ if you can't even respect boundaries
