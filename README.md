@@ -32,4 +32,4 @@
 
 ʚ ♡ ɞ ; Anywho, much love to my friends!:
 
-Lina, Fynn, Za, Solar, and Dan !
+Lina, Fynn, Za, Solar, Conzer, Soup, Vel, and Dan !
