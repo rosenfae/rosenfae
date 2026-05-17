@@ -17,7 +17,7 @@
 
 DNI IF!!
 
-> you make out of pocket NSFW jokes...online sexual harassment is a thing!!
+> you make out of pocket NSFW jokes ESPECIALLY if you're a stranger...online sexual harassment is a thing!!
 
 > basic dni criteria (racist, homophobic, transphobic, albeist)
 
